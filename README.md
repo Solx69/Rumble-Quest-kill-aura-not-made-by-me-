@@ -1,1 +1,2 @@
-# Rumble-Quest-kill-aura-not-made-by-me-
+this script was NOT made by me!
+here is the creator of the script: xTachi // repxrd#0347
